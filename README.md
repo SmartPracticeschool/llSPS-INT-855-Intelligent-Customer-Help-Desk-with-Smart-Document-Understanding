@@ -2,7 +2,7 @@
 Intelligent Customer Help Desk with Smart Document Understanding
 
 Intelligent-Customer-Help-Desk-with-Smart-Document-Understanding
-https://youtu.be/MB1-IvXD37A (youtube link)
+https://youtu.be/7yiBg2252Iw (youtube link)
 
 Category: Artificial Intelligence
 
